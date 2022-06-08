@@ -1,1 +1,0 @@
-# fullstackengineer.dev
